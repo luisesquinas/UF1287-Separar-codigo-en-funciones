@@ -1,0 +1,1 @@
+Ejercicio 5 y 6 del examen práctico
